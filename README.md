@@ -30,7 +30,7 @@ Brawley specializes in commercial construction and government contracting.
 - Procore | Bluebeam
 
 **EDUCATION + CERTIFICATIONS**
-University of South Carolina, B.A. Public Relations, 2014
+- University of South Carolina, B.A. Public Relations, 2014
 - OSHA 30 Certified
 - Certified SC Notary Public
 - American Red Cross AED/CPR
