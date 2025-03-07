@@ -31,10 +31,10 @@ Brawley specializes in commercial construction and government contracting.
 
 **EDUCATION + CERTIFICATIONS**
 University of South Carolina, B.A. Public Relations, 2014
-OSHA 30 Certified
-Certified SC Notary Public
-American Red Cross AED/CPR
-CMAA member
+- OSHA 30 Certified
+- Certified SC Notary Public
+- American Red Cross AED/CPR
+- CMAA member
 
 🔭 I’m currently working on seeking new contracts.
 
